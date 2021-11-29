@@ -12,4 +12,4 @@
 
 [Google](https://www.google.com/intl/en-GB/gmail/about/#)
 
-![bali](https://static.toiimg.com/thumb/84165376/bali-tourism.jpg?width=1200&height=900)
+![gamers](https://images.hdqwalls.com/wallpapers/squid-game-fanart-4k-7i.jpg)
