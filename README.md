@@ -12,4 +12,4 @@
 
 [Google](https://www.google.com/intl/en-GB/gmail/about/#)
 
-![taj mahal](https://c.ndtvimg.com/2021-08/aa8qno6_taj-mahal-night-photo-istock_625x300_20_August_21.jpg)
+![bali](https://static.toiimg.com/thumb/84165376/bali-tourism.jpg?width=1200&height=900)
